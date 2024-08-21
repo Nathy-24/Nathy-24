@@ -12,3 +12,5 @@ Meu nome é Náthaly Barreto Moreira.
 - Comecei a andar de skate. 🛹
 
 https://tenor.com/blAAs.gif
+
+https://tenor.com/tmLlitJ8Rac.gif
