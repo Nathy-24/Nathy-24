@@ -1,16 +1,14 @@
-## Hi there 👋
+## Boas vindas ao meu perfil ❤️:
 
-<!--
-**Nathy-24/Nathy-24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Náthaly Barreto Moreira.
 
-Here are some ideas to get you started:
+- Estudo no colégio Amelia.
+- Sou apaixonada por física. 🎇
+- Quero fazer física, astronomia e química. 👨‍🎓
+- Sou estudiosa e determinada.
+- Sou ambivertida.
+- Já pintei vários quadros. 🖼️
+- Amo livros de terror, suspense e assacinato. 📖
+- Comecei a andar de skate. 🛹
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://tenor.com/blAAs.gif
