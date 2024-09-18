@@ -6,7 +6,7 @@ Meu nome é Náthaly Barreto Moreira.
 - Sou apaixonada por física. 🎇
 - Quero fazer física, astronomia e química. 👨‍🎓
 - Sou estudiosa e determinada.
-- Sou ambivertida.
+- Sou ambivertida. 
 - Já pintei vários quadros. 🖼️
 - Amo livros de terror, suspense e assassinato. 📖
 - Comecei a andar de skate. 🛹
