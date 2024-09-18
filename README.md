@@ -8,9 +8,7 @@ Meu nome é Náthaly Barreto Moreira.
 - Sou estudiosa e determinada.
 - Sou ambivertida.
 - Já pintei vários quadros. 🖼️
-- Amo livros de terror, suspense e assacinato. 📖
+- Amo livros de terror, suspense e assassinato. 📖
 - Comecei a andar de skate. 🛹
 
-https://tenor.com/blAAs.gif
-
-https://tenor.com/tmLlitJ8Rac.gif
+![](https://tenor.com/tmLlitJ8Rac.gif)
