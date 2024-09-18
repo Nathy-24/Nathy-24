@@ -11,6 +11,6 @@ Meu nome é Náthaly Barreto Moreira.
 - Amo livros de terror, suspense e assacinato. 📖
 - Comecei a andar de skate. 🛹
 
-![](https://tenor.com/blAAs.gif)
+https://tenor.com/blAAs.gif
 
-![](https://tenor.com/tmLlitJ8Rac.gif)
+https://tenor.com/tmLlitJ8Rac.gif
