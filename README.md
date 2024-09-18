@@ -2,7 +2,7 @@
 
 Meu nome é Náthaly Barreto Moreira.
 
-- Estudo no colégio Amelia.
+- Estudo no Colégio Amelia.
 - Sou apaixonada por física. 🎇
 - Quero fazer física, astronomia e química. 👨‍🎓
 - Sou estudiosa e determinada.
